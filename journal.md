@@ -11,3 +11,6 @@ My expirence with python has been amazing, ive always like typing in python rega
 
 # September 10, 2024
 This is an example entry
+
+# September 17, 2024
+This is a free week
