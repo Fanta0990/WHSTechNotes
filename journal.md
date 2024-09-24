@@ -14,3 +14,6 @@ This is an example entry
 
 # September 17, 2024
 This is a free week
+
+# September 24, 2024
+The reason why you should follow python instrutions step by step because there is only a few ways to write certain code and if you type it wrong nothing is going to happen in the code.
