@@ -20,3 +20,6 @@ The reason why you should follow python instrutions step by step because there i
 
 # October 2, 2024
 In my routine i do do code for example the game im creating and the MAFIA game on code.hs within interacting with others
+
+# October 7, 2024
+The Job im intrested in is Astronomy and its about studing celestial objects like Stars and planets. Its required you have a PH.D in Astronomy, Physics, or any related feilds also knowlage in math, writting, verbal speaking and problem solving. To increass the growth you can do training or networking sorces. This actually does not corilate with computer science to my knolage and to be honesty this is just stuff i wish to know 
