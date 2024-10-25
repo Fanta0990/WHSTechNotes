@@ -23,3 +23,6 @@ In my routine i do do code for example the game im creating and the MAFIA game o
 
 # October 7, 2024
 The Job im intrested in is Astronomy and its about studing celestial objects like Stars and planets. Its required you have a PH.D in Astronomy, Physics, or any related feilds also knowlage in math, writting, verbal speaking and problem solving. To increass the growth you can do training or networking sorces. This actually does not corilate with computer science to my knolage and to be honesty this is just stuff i wish to know 
+
+# October 25, 2024
+Ai could be good for helping people do simple math problems and explaining it thoughly or to ask very simple questions that could help you fix something or be able to do something a lot simpliler. Ai could also be bad by making art instead of actual humans who have passions and dreams as well of taking jobs like art or Animation/ movies. There is more bad things about AI current day than good like in the past.
