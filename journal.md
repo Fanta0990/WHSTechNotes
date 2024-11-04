@@ -32,3 +32,6 @@ Ai could be good for helping people do simple math problems and explaining it th
 
 # October 29, 2024
 Technology can be a big part of the election like how Kamala harris are making memes for the election or how donald trump posted about working at mcdonalds. People are able to spread true or false informations about the people who are running as president and to be able to post the ralleies that happen to be anble to anaylze and pin point certain information.
+
+# November 4, 2024
+It is important to make sure to secure your personal info because people are able to steal it and use it to their advatage and even sell it on the black market. Procotions you could make to secure your personal infromation is to not post it at all or censor it. You cant really take it back but you can delete it so nobody else can see it. Just not post anything to personal or make anything where personal information in your code.
