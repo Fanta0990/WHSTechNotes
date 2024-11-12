@@ -35,3 +35,7 @@ Technology can be a big part of the election like how Kamala harris are making m
 
 # November 4, 2024
 It is important to make sure to secure your personal info because people are able to steal it and use it to their advatage and even sell it on the black market. Procotions you could make to secure your personal infromation is to not post it at all or censor it. You cant really take it back but you can delete it so nobody else can see it. Just not post anything to personal or make anything where personal information in your code.
+
+# November 12, 2024
+The presidental election happened in our community and technology have failed us multiple times with the counter as an example. Currently we have to recount over 30,000 votes because some have burned, or the fact the counter just broke.
+Technology could of been better if the machine did its job properly or if we had better secruity on the voting boxes.
