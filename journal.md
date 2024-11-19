@@ -39,3 +39,6 @@ It is important to make sure to secure your personal info because people are abl
 # November 12, 2024
 The presidental election happened in our community and technology have failed us multiple times with the counter as an example. Currently we have to recount over 30,000 votes because some have burned, or the fact the counter just broke.
 Technology could of been better if the machine did its job properly or if we had better secruity on the voting boxes.
+
+# November 18, 2024
+Techonogy changes as we grow as we adapt to the world and we get more smarter and figuring how stuff works espically either ways to harvest. The more we use technology to do stuff like harvesting the less money we have to pay because we are not usuing manual labor.
