@@ -42,3 +42,6 @@ Technology could of been better if the machine did its job properly or if we had
 
 # November 18, 2024
 Techonogy changes as we grow as we adapt to the world and we get more smarter and figuring how stuff works espically either ways to harvest. The more we use technology to do stuff like harvesting the less money we have to pay because we are not usuing manual labor.
+
+# December 2, 2024
+The thing that concerns me about new technology is AI stealing jobs espically in the art industry.  A way to innovate Technology is to making it be able to have more things to help humans do the task at hand. Ethical things that should be considered would be AI being able to do stuff only humans should be doing or letting machines machines do all the manula work for people.
