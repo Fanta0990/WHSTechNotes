@@ -45,3 +45,6 @@ Techonogy changes as we grow as we adapt to the world and we get more smarter an
 
 # December 2, 2024
 The thing that concerns me about new technology is AI stealing jobs espically in the art industry.  A way to innovate Technology is to making it be able to have more things to help humans do the task at hand. Ethical things that should be considered would be AI being able to do stuff only humans should be doing or letting machines machines do all the manula work for people.
+
+# December 9, 2024
+Brain rot is somthing that has a literal meaning, like your brain rotiting, or people who say stuff repeatively like the person is not fully there. Personally i find "brainrot" to be severally annoying. Media can have both a possitive and negitive influence on you mattering what you see on the internet, certain things that are inappropriate can affect a person negativly while something that makes you smile can effect you possitivly. Slop is a word i have never heard up but Lore have been a thing since 2018 saying that a story or a game has plot and or has plot that the person is is playing or reading needs to figure out. It is possible to balance meaningful engagement if you just control what you watch and or do on the internet.
