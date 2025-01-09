@@ -48,3 +48,9 @@ The thing that concerns me about new technology is AI stealing jobs espically in
 
 # December 9, 2024
 Brain rot is somthing that has a literal meaning, like your brain rotiting, or people who say stuff repeatively like the person is not fully there. Personally i find "brainrot" to be severally annoying. Media can have both a possitive and negitive influence on you mattering what you see on the internet, certain things that are inappropriate can affect a person negativly while something that makes you smile can effect you possitivly. Slop is a word i have never heard up but Lore have been a thing since 2018 saying that a story or a game has plot and or has plot that the person is is playing or reading needs to figure out. It is possible to balance meaningful engagement if you just control what you watch and or do on the internet.
+
+
+# January 8, 2025
+Looking back - I enjoyed that we were able to code and the other people in this class are social
+Looking Ahead - Some thing that would be intesting is talking about certain codes and ideas of codes and or games. I would like to explore adding photos and or animating in code.
+Certifications - Im thinking to get certified in python, all i need to do is learn more about it and test myself
