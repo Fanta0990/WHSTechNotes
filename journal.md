@@ -54,3 +54,6 @@ Brain rot is somthing that has a literal meaning, like your brain rotiting, or p
 Looking back - I enjoyed that we were able to code and the other people in this class are social
 Looking Ahead - Some thing that would be intesting is talking about certain codes and ideas of codes and or games. I would like to explore adding photos and or animating in code.
 Certifications - Im thinking to get certified in python, all i need to do is learn more about it and test myself
+
+# January 13,  2025
+My opinon on this is taht it could be good in a way like being able to help humans with stuff but it can do bad just because it can take jobs and make things more artifical.To perpare myself i would to perpare for an ai takeover and get jobs that humans have to do
