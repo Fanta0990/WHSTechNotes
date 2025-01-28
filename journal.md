@@ -61,3 +61,11 @@ My opinon on this is taht it could be good in a way like being able to help huma
 # January 22,  2025
 The U.S.A banned tik tok for atleast 14 hours, the goverments intervention aka Trump made it unbanned. This can cause a mass scare to other non-U.S app companys that major in the U.S.A and to make sure not to raise to much suspension to make the govrment ban them from the place that gives them the most content, money, and views. This can also make said company add more security updates to their app and make sure people do what the terms and service say. Tik Tok and other companys could of have can prove their security to the government and making sure they have a decent security. 
 One feture i would add is that if you say you are an adult on the app you have to show your I.D to a representive of the company through the app, not ai. A full policy would be just anything that can possible ell information or have minor involed shall be banned. The only lesson i can learn from this is do not live or make the app near or around china, because the goverment would think im Chinese. Seriously though, I would make sure that there is no leaks of information anywhere and make sure the people on my app wouldn't do such a thing.
+
+# January 27,  2025
+| Name | Car | Mistake |
+|:------- |:-- |:------ |
+| Jimmy | Honda Civic | Drilled Hole in gass tank |
+|Kayla | GMC Sierra | Fixed Wrong Problem |
+| Bart | Toyota Corolla | Left stains on Carpet |
+| Harrison | Subaru Forester | Left the Oil cap off |
