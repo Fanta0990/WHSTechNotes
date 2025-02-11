@@ -69,3 +69,12 @@ One feture i would add is that if you say you are an adult on the app you have t
 |Kayla | GMC Sierra | Fixed Wrong Problem |
 | Bart | Toyota Corolla | Left stains on Carpet |
 | Harrison | Subaru Forester | Left the Oil cap off |
+
+# February 11,  2025
+| Shape | Color | Count |
+|:------- |:-- |:------ |
+| Circle | Green | 7 |
+| Square | Yellow | 5 |
+| Hexagon | Brown | 6 |
+| Triangle| Purple | 4 |
+| Octagon | Red | 3 |
