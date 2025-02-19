@@ -78,3 +78,6 @@ One feture i would add is that if you say you are an adult on the app you have t
 | Hexagon | Brown | 6 |
 | Triangle| Purple | 4 |
 | Octagon | Red | 3 |
+
+# February 18, 2025
+The most intresting thing i learned last week was Trinity was alive because she finally came back to school
