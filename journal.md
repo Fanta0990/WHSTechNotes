@@ -81,3 +81,12 @@ One feture i would add is that if you say you are an adult on the app you have t
 
 # February 18, 2025
 The most intresting thing i learned last week was Trinity was alive because she finally came back to school
+
+# March 3, 2025
+| Name | Power | Challenge |
+|:------- |:-- |:------ |
+| Zara | Telekenesis | Secured Buildings |
+| Aether | Weather Manipulation | Prevented Assassination |
+| Thorne | invisibility | Underwater Rescue |
+| Silver | Mind Control | Retrived Stole goods |
+| Tangier | Shapeshifting | Extract Prisoners |
