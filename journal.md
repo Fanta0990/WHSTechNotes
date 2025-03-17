@@ -70,6 +70,9 @@ One feture i would add is that if you say you are an adult on the app you have t
 | Bart | Toyota Corolla | Left stains on Carpet |
 | Harrison | Subaru Forester | Left the Oil cap off |
 
+# Febuary 3, 2025
+Technology could be used to double check other programs and machines to make sure the engines are properly working. With air traffic control you could use diffrent sensors to see if their are any collisions or if something similar is going to happen. if you have a weak system it baing taken over or hacked is really easy to do.
+
 # February 11,  2025
 | Shape | Color | Count |
 |:------- |:-- |:------ |
@@ -82,6 +85,9 @@ One feture i would add is that if you say you are an adult on the app you have t
 # February 18, 2025
 The most intresting thing i learned last week was Trinity was alive because she finally came back to school
 
+# February 24, 2025
+Technology can be used to keep up with the youth's slang by certain youtube videos and just being on Tik tok. The benifits on knowing the slang is so you know what the younger generation is saying.
+
 # March 3, 2025
 | Name | Power | Challenge |
 |:------- |:-- |:------ |
@@ -90,3 +96,6 @@ The most intresting thing i learned last week was Trinity was alive because she 
 | Thorne | invisibility | Underwater Rescue |
 | Silver | Mind Control | Retrived Stole goods |
 | Tangier | Shapeshifting | Extract Prisoners |
+
+# March 17, 2025
+I have interactions with technology by using them to start up rides at my work. It could of been a screen, an example being 4D theater or 2 buttons on a consel like at carousel. It helped me do my job. I cannot connect anything i used for work for school.
