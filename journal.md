@@ -99,3 +99,6 @@ Technology can be used to keep up with the youth's slang by certain youtube vide
 
 # March 17, 2025
 I have interactions with technology by using them to start up rides at my work. It could of been a screen, an example being 4D theater or 2 buttons on a consel like at carousel. It helped me do my job. I cannot connect anything i used for work for school.
+
+# March 24, 2025
+During march madness,James scott had to weaar a face mask during the game which lead to wide cerculation of why he had the ugly thing on. He used engineering technology to have someon make the mask becuase he had a type of surgery to fix a injury and he didnt want to break it again leading for the mask to be made to protect his mouth and face.
