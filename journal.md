@@ -102,3 +102,10 @@ I have interactions with technology by using them to start up rides at my work. 
 
 # March 24, 2025
 During march madness,James scott had to weaar a face mask during the game which lead to wide cerculation of why he had the ugly thing on. He used engineering technology to have someon make the mask becuase he had a type of surgery to fix a injury and he didnt want to break it again leading for the mask to be made to protect his mouth and face.
+
+# March 31, 2025
+1. Currently i feel better than Sunday where i can actually get up and be productive than sleep all day. I still cant go back to school sadly
+2. The amount of makeup work i have to do now
+3. Not get sick (of wait i cant cause im still sick, haha.... fun times.)
+4. My goal is to keep my grades up and to do that i need to turn in my work on time and pass it
+5. I can talk to my dad because she actaully takes the time to understand how im feeling and how to cheer me up. even though sometimes the way she comes up about it dosnt work, at least i can understand she is trying
