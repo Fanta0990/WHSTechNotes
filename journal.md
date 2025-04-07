@@ -109,3 +109,6 @@ During march madness,James scott had to weaar a face mask during the game which 
 3. Not get sick (of wait i cant cause im still sick, haha.... fun times.)
 4. My goal is to keep my grades up and to do that i need to turn in my work on time and pass it
 5. I can talk to my dad because she actaully takes the time to understand how im feeling and how to cheer me up. even though sometimes the way she comes up about it dosnt work, at least i can understand she is trying
+
+# April 7,2025
+To be honest, AI is NOT a good tool to study with, espically for a test. I mean, you are able to use it to generate questions but then again half of the answers may or may not be correct or even make sense for the reader.
