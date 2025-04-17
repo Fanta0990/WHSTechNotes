@@ -112,3 +112,6 @@ During march madness,James scott had to weaar a face mask during the game which 
 
 # April 7, 2025
 To be honest, AI is NOT a good tool to study with, espically for a test. I mean, you are able to use it to generate questions but then again half of the answers may or may not be correct or even make sense for the reader.
+
+# April 14, 2025
+A ban can be dentremental to Students because it disconnects them from the outside and if in danger it can be more dangerous because nobody can call for help. It can make students more irritable because of the lack of resources like Music or a search engines that can help them like with projects. If this was iplemented into my school i would not listen to it. I need music to focus on work and to tune out other people.
