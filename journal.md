@@ -1,4 +1,4 @@
-# August 27, 2024
+)# August 27, 2024
 I worked on the drone to try to complete the challage code thingy
 
 # August 26, 2024
@@ -115,3 +115,10 @@ To be honest, AI is NOT a good tool to study with, espically for a test. I mean,
 
 # April 14, 2025
 A ban can be dentremental to Students because it disconnects them from the outside and if in danger it can be more dangerous because nobody can call for help. It can make students more irritable because of the lack of resources like Music or a search engines that can help them like with projects. If this was iplemented into my school i would not listen to it. I need music to focus on work and to tune out other people.
+
+# April 28, 2025
+| Name | Flavor | Ocassion | Price |
+|:------- |:-- |:------ |:-----|
+| Sally | Chocolate | Graduation |$35,000|
+| Michael | Vanilla | Farewell |$37,000|
+| Emma | Carrot | Birthday |$39,000|
