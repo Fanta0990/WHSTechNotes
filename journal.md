@@ -1,4 +1,4 @@
-)# August 27, 2024
+# August 27, 2024
 I worked on the drone to try to complete the challage code thingy
 
 # August 26, 2024
@@ -122,3 +122,6 @@ A ban can be dentremental to Students because it disconnects them from the outsi
 | Sally | Chocolate | Graduation |$35,000|
 | Michael | Vanilla | Farewell |$37,000|
 | Emma | Carrot | Birthday |$39,000|
+
+# May 12, 2025
+Trends like this suck also it possibly illegal. Why you ask? Because it is PROPERTY DAMAGE. Which is a Misdemeanor. This is bad because this can cause fires and flat out ruin the piece of tech.
