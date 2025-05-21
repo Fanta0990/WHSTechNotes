@@ -125,3 +125,6 @@ A ban can be dentremental to Students because it disconnects them from the outsi
 
 # May 12, 2025
 Trends like this suck also it possibly illegal. Why you ask? Because it is PROPERTY DAMAGE. Which is a Misdemeanor. This is bad because this can cause fires and flat out ruin the piece of tech.
+
+# May 19, 2025
+yuh
